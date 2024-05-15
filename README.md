@@ -14,7 +14,7 @@
 
 - 📫 How to reach me **nadiminti2000@gmail.com**
 
-- 📄 Know about my experiences [resume](rand_link)
+- 📄 Know about my experiences [resume](https://drive.google.com/file/d/1RLxJ-ctz0a71vBKDjn2MSFmM-MGE6z_p/view?usp=sharing)
 
 
 
